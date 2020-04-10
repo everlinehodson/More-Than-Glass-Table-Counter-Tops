@@ -1,0 +1,2 @@
+# More-Than-Glass-Table-Counter-Tops
+ Glass offers great protection for your table. More Than Glass is able to custom cut glass for most all shapes and sizes of tables. We can come to your home or office to make a pattern or you are welcome to bring your wood or paper pattern to us. There are several different types of edges available for your glass and we will be happy to recommend which edge will work best with your particular table https://morethanglass.com/.
